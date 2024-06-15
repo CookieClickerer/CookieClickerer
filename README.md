@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CookieClickerer
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on your mom 🤣
+- i recently joined 2 weeks ago
+- ⚡ Fun fact: i am cookie clicker moder
